@@ -1,2 +1,2 @@
-# 👋 Hi, I’m @gunn247 🤖
-I’m an Open Source Contributor 🚀✨.
+# 👋 Hi, I’m Gunn🤖
+I’m a Web Designer & Developer, an Open Source Contributor and a Nature Lover🚀✨.
